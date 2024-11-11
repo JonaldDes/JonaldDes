@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @JonaldDes
+- 👀 I’m interested in Website Design
+- 🌱 I’m currently learning Nothing
+- 💞️ I’m looking to collaborate on Nothing
+- 😄 Pronouns: Anything
+- ⚡ Fun fact: I Like Frutiger Aero
